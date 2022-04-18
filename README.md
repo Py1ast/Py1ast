@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Py1ast
+- Pls dont download anything 
+- im using github for privat reasons
+- like transferring data from pc to phone and back
